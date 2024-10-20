@@ -1,2 +1,0 @@
-# andfirsyah.github.io
-Website
